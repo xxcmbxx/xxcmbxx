@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @xxcmbxx
+- 👀 I’m interested in nfts
+- 🌱 I’m currently learning how to create nfts
+- 💞️ I’m looking to collaborate on nfts
+- 📫 How to reach me...instagram on certifiedmamasboy.ww or my email on thulasizwenyangi@gmail.com
